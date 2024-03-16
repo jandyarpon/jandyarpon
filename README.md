@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @jandyarpon
+- 👋 Hi, I’m Hev Abisaya
 - 👀 I’m interested in You
-- 🌱 I’m currently learning Natan
-- 💞️ I’m looking to collaborate on Jani
-- 📫 How to reach me ...
-- 😄 Pronouns: He?Him
+- 🌱 I’m currently learning secret
+- 💞️ I’m looking to collaborate on wala siya ra aku gusto
+- 📫 How to reach me: secret
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: HEHEHEHEHHEHEHE
 
 <!---
